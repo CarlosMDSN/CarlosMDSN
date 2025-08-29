@@ -23,6 +23,15 @@ https://github.com/CarlosMDSN/JDBC-Tutorial
 
 https://github.com/CarlosMDSN/OOP-WEEK9-Sem2
 
+29th AUTUMN PROJECT SUBMISSION
+
+https://planner.cloud.microsoft/webui/plan/r0ViRSO1pUKAjqHfuH56Z5gAAYuo/view/grid?tid=47855545-00bb-4800-a65f-e79104ec0fc4
+
+https://atlantictu-my.sharepoint.com/:u:/g/personal/g00429041_atu_ie/EX_YYnbjtdBHnPERCERFdWYBHB1e-3o-cAFx3ZQ5xcnz7Q?e=9py4ph
+
+https://atlantictu-my.sharepoint.com/:p:/g/personal/g00429041_atu_ie/EfVVdTp1AmtHoEllBSERKxwBnRP0mbAyGggCAfyxce5wpQ?e=mFh59P
+
+
 
 
 
